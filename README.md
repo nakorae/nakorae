@@ -1,1 +1,1 @@
-I'm a junior high school student.
+I'm a high school student.
